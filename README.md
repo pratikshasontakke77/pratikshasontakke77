@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **pratikshasontakke77@gmail.com**
 
-- 📄 Know about me more [https://drive.google.com/file/d/19AygQzucAsFp_aYvNf90ZriWWvR0E5O6/view?usp=sharing](https://drive.google.com/file/d/19AygQzucAsFp_aYvNf90ZriWWvR0E5O6/view?usp=sharing)
+- 📄 Know about me more [https://drive.google.com/file/d/15VhRLsir_-ajqTrGEqjDO3l0vds-N6jX/view?usp=sharing](https://drive.google.com/file/d/19AygQzucAsFp_aYvNf90ZriWWvR0E5O6/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
